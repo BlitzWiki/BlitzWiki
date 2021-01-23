@@ -12,8 +12,7 @@ Notre système est plus sécurité que celui de nos ennemis, rejoignez-nous ou d
 ─────────────────────────────────────
 </p
   
-### Our team <br/> <br/>
-  ![Team]Kazushi ⚡#1000 ; Tilu ⚡#2502 ; lunatic.nsa'Blitz#7777 ; внѕ | ⚡ ~ Marius.bzcn#4055 ; • 𝐅𝐈ЯΣ ~ ⚡#6666 ; XΣЯΛ⚡#0355 ; $Wyyped ⚡#1000 ; saravenpi ⚡
+### Our team <br/> <br/> ![Team]Kazushi ⚡#1000 ; Tilu ⚡#2502 ; lunatic.nsa'Blitz#7777 ; внѕ | ⚡ ~ Marius.bzcn#4055 ; • 𝐅𝐈ЯΣ ~ ⚡#6666 ; XΣЯΛ⚡#0355 ; $Wyyped ⚡#1000 ; saravenpi ⚡
 #8993 ; apo#1337 ; FORWEN ⚡#0001 ; Yazz.⚡#0667 ; Yoshijuro⚡#0001 ; Z3nux ⚡#0666 ; Zapiox⚡#0001
   
 <p align="center">
